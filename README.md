@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Buchi
-- 👀 In my free time i really like to code some stuff :)
+- 👀 In my free time dua i hoid nd recht vü 
 
